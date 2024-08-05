@@ -1,1 +1,0 @@
-Pasos en humano: 
